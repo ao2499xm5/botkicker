@@ -54,8 +54,8 @@ Prankbots
 <a href="https://line.me/R/ti/p/%40gnh2780p"><img height="36" border="0" alt="OFFICIAL" src="https://scdn.line-apps.com/n/line_add_friends/btn/en.png"></a>
 # OR
 <a href="https://line.me/R/ti/p/adiputra.95"><img height="36" border="0" alt="LINE ME" src="https://scdn.line-apps.com/n/line_add_friends/btn/en.png"></a>
-# [TUTORIAL](https://www.youtube.com/channel/UCycBrqSWEHdk-slnhUmGWiQ)
-# [AMBIL TOKEN](https://youtu.be/NwMYG_jn1HM)
+# [TUTORIAL](https://www.youtube.com/channel/UCycBrqSWEHdk-slnhUmGWiQhttps://youtu.be/LyEm2SdaDlM)
+# [AMBIL TOKEN](https://youtu.be/NwMYG_jn1HMhttps://youtu.be/LyEm2SdaDlM)
 #### THANKS TO.
 ```
 =========
